@@ -1,8 +1,8 @@
                           Hi  👋 , Saya Arya!
                 
                 
-                
-                Kada Bisa Ngoding Tetap Maksa Agar Lulus
+                             Saya Orang Nya
+                Tidak Bisa Ngoding Tapi Tetap Maksa Agar Lulus
                                   T_T
                  
                  
