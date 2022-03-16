@@ -3,7 +3,6 @@ Kada Bisa Ngoding Tetap Maksa Agar Lulus
                  
                  
                  
-                 Tolong La
                  
                  
                  
