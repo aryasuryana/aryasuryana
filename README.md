@@ -2,7 +2,7 @@
                 
                 
                              Saya Orang Nya
-                Tidak Bisa Ngoding Tapi Tetap Maksa Agar Lulus
+                 Tidak Bisa Ngoding Tapi Tetap Ngoding
                                   T_T
                  
                  
